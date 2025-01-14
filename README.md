@@ -4,13 +4,13 @@
 
 # <h3><a href="https://www.youtube.com/watch?v=Nfwoh5qxHH8&list=PLalN_lGmhQh_TeDafKrRWvHckqhM7incq">➤ ►🌍📺📱👉 PLAY LIST COMPLETA</a></h3>
 
-# <h3><a href="https://www.youtube.com/watch?v=Nfwoh5qxHH8">➤ ►🌍📺📱👉 Magia Cerimonial Curso de #scrying (Vidência) P/ Iniciantes aulagratuita 01 </a></h3>
+# <h3><a href="https://www.youtube.com/watch?v=Nfwoh5qxHH8">➤ ►📺📱👉 Magia Cerimonial Curso de #scrying (Vidência) P/ Iniciantes aulagratuita 01 </a></h3>
 
-# <h3><a href="https://www.youtube.com/watch?v=nKW0DJjxK-Q">➤ ►🌍📺📱👉 Magia Cerimonial Curso de #scrying (Vidência) P/ Iniciantes aulagratuita 02 </a></h3>
+# <h3><a href="https://www.youtube.com/watch?v=nKW0DJjxK-Q">➤ ►📺📱👉 Magia Cerimonial Curso de #scrying (Vidência) P/ Iniciantes aulagratuita 02 </a></h3>
 
-# <h3><a href="https://www.youtube.com/watch?v=SGD9TgOK0Rc">➤ ►🌍📺📱👉 Magia Cerimonial Curso de #scrying (Vidência) P/ Iniciantes aulagratuita 03 </a></h3>
+# <h3><a href="https://www.youtube.com/watch?v=SGD9TgOK0Rc">➤ ►📺📱👉 Magia Cerimonial Curso de #scrying (Vidência) P/ Iniciantes aulagratuita 03 </a></h3>
 
-# <h3><a href="https://www.youtube.com/watch?v=MyCmyB-28Ww">➤ ►🌍📺📱👉 Magia Cerimonial Curso de #scrying (Vidência) P/ Iniciantes aulagratuita 04 </a></h3>
+# <h3><a href="https://www.youtube.com/watch?v=MyCmyB-28Ww">➤ ►📺📱👉 Magia Cerimonial Curso de #scrying (Vidência) P/ Iniciantes aulagratuita 04 </a></h3>
 
 
 
