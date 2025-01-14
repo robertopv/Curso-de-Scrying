@@ -1,4 +1,5 @@
-#  Magia Cerimonial Curso de scrying (Vidência) P/ Iniciantes aulagratuita
+#  Magia Cerimonial Curso de scrying (Vidência) P/ Iniciantes aula gratuita 
+#  curso de scrying gratis 
 
 𝙰𝚜𝚜𝚒𝚜𝚝𝚒𝚛 agora:
 
@@ -14,7 +15,7 @@
 
 
 
-#### CONTEUDO ####
+#### CONTEUDO " Grates " ####
 Magia Cerimonial Curso de Scrying Para Iniciantes 
 Scrying – Vidência na Bola de Cristal
 
