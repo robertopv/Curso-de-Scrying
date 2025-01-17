@@ -1,5 +1,5 @@
-#  Magia Cerimonial Curso de scrying (Vidência) P/ Iniciantes aula gratuita 
 #  curso de scrying gratis 
+#  Magia Cerimonial Curso de scrying (Vidência) P/ Iniciantes aula gratuita 
 
 𝙰𝚜𝚜𝚒𝚜𝚝𝚒𝚛 agora:
 
